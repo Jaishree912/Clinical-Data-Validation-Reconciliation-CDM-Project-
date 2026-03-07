@@ -102,4 +102,4 @@ MSc Biotechnology (CGPA 8.90) | GCP Certified (NIDA CTN) | Clinical Data Managem
 
 Seeking entry-level roles in **Clinical Data Management**, **Pharmacovigilance**, or **Clinical Research** where domain knowledge and data skills can contribute to trial quality and patient safety.
 
-📧 Connect on [LinkedIn](www.linkedin.com/in/jaishree-mishra-051498167)
+📧 Connect on [LinkedIn]www.linkedin.com/in/jaishree-mishra-051498167
